@@ -1,0 +1,1 @@
+burası hakkında sayfasıdır
